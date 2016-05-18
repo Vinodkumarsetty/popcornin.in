@@ -27,8 +27,13 @@ Enemies --
  3)"Sahab" possesses double identity, one being a law-abiding Industrialist and Mayor, known as Kumar Ranjan and other being his secret identity who's an organised criminal and drug lord. Having a very intelligent and criminal mind, he keeps plotting ways to create trouble for "Shaktimaan'. 
 
 Other enemies – 
+
 Shalaka, Kapala,Teemiraa, Matandeeka, Kakodar,Toyman, Kalushaah, Maharani Mayadri, Kashtak, Khali-Bali and few more. 
 
-Alter-Ego and Love Interest - "Shaktimaan" having a secret identity, Pandit Gangadhar Shastri, who works as a photographer for the newspaper Aaj ki Awaaz. He is in love with his colleague Geeta Vishwas co-reporter. 
+Alter-Ego and Love Interest – 
 
-Facts - "Shaktimaan" is rebirth of "Shri Satya", first guru of Suryanshis. "Tamraj Kilvish" is "Samrat Kilvish" from past. "My mission is to destroy the sin within people, not the sinned people" "Shaktimaan"
+"Shaktimaan" having a secret identity, Pandit Gangadhar Shastri, who works as a photographer for the newspaper Aaj ki Awaaz. He is in love with his colleague Geeta Vishwas co-reporter. 
+
+Facts – 
+
+"Shaktimaan" is rebirth of "Shri Satya", first guru of Suryanshis. "Tamraj Kilvish" is "Samrat Kilvish" from past. "My mission is to destroy the sin within people, not the sinned people" "Shaktimaan"
