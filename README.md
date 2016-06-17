@@ -1,10 +1,9 @@
 
-Hi "Name",
- 	  
- 	  The conversation we had on Facebook was put into discussion and the team has agreed to the terms.
- You would be awarded a certificate for every 3 articles published on popcornin.in.
-Please fill and submit the form given in the link below.
+ 
 
+
+Hi name,
+	Our team at Popcornin are glad that you are interested in contributing to our site as an author. As discussed, you will be paid per word basis for your first two articles. Amount will be transferred to your bank account as soon as your article is posted on the site. Further details will be updated soon.
+	
 Regards,
-Vinod
-
+Team Popcornin
